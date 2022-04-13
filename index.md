@@ -1,1 +1,1 @@
-as always the hardest part is starting
+as always the hardest part is starting, this should have things soon!
